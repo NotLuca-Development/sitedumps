@@ -9,5 +9,5 @@ This was before the DIE text, this was the only reason AyeHosting (amogus.uk) wa
 ![image](https://user-images.githubusercontent.com/50520164/176665596-3280f7ef-22c7-4b96-b443-d27bebd59974.png)
 
 ## What is the "Die" text??
-Well here.
+Well here. <br/>
 ![image](https://user-images.githubusercontent.com/50520164/176666026-cf3f54e4-315c-4797-87e4-e72a114e9975.png)
